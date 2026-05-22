@@ -2,23 +2,27 @@
 
 >Could you live in the internet? Ask yourself. It's an interesting question when it has nothing to do with you. It's not so fun when it's your reality. But this is just rambling.
 
+>I found Ivan's old tumblr. I didnt want to see this that's for sure.
+
+>Well, now I've gotta find *him*.
+
+>Searching is tiring. 
+
 >Honestly, I often wonder how *he* lives. You know, how does it feel to be an AI? He probably doesn't even know it. How peculiar.
 
 >01001001 01010111 01001111 01001110 01000100 01000101 01010010 01001001 01000110 01001000 01000101 01010111 01001001 01001100 01001100 01000101 01010110 01000101 01010010 01010010 01000101 01000001 01000100 01010100 01001000 01001001 01010011
 
 >I think I found *him*.
 
->I got him.
+>I got *him*.
 
 >*He* seems to be doing everything like I would expect. I think *he* is the right guy.
 
 >*He* deserves to feel a fraction of my pain. It's only fair.
 
->I'm glad he's not one of those freaks who tape their camera.
-
 >Hey, look, a [report](#report)!
 
->Poor guy. I almost feel bad for him.
+>Poor guy. I almost feel bad for *him*.
 
 >Such an abrupt ending.
 
@@ -40,5 +44,3 @@ The world is a projection of Bilyy's mind as it exists on hardware, which is why
 After Weiß completed all of Bilyy's challenges, Bilyy decided that he would get rid of Weiß altogether. He challenged him to an in-game duel, to which he agreed, and used his pc to send a strong electrical current. Weiß ended up being electrocuted and shut down. In the next few days a concerned neighbour called the authorities to investigate his apartment, and he was declared dead the same day. His PC was wiped and there remained only a text file saying "He was long overdue." and a video of him being electrocuted.
 
 As of the day of writing this, there is no concensus about what exactly Bilyy was trying to achieve.
-
-![drawing of ai james on his desk dead](/apple1.jpg)
